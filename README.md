@@ -9,3 +9,8 @@
 닉네임 : 99jamin56
 좋아는 게임 : LOL, baldur's gate3, Half-Life
 
+
+##  유상준
+닉네임 : bbobbabbi
+좋아하는 게임 : 엘든링
+![Alt Text](https://oiiaoiia.org/storage/2024/10/Cat360spin_memehdf.gif)
