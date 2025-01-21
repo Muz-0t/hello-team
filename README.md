@@ -19,5 +19,6 @@
 ## 고민종
 닉네임 : kmj3265
 좋아하는 게임 : LOL, LostArk
-![Alt Text](https://tenor.com/view/dog-crocodile-toy-game-funny-cute-gif-5236785718586568968)
+![Alt Text](https://media1.tenor.com/m/SKzM3Ykw8QgAAAAd/dog-crocodile-toy.gif)
+
 
