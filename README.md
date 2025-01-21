@@ -21,3 +21,11 @@
 좋아하는 게임 : LOL, LostArk
 ![Alt Text](https://tenor.com/view/dog-crocodile-toy-game-funny-cute-gif-5236785718586568968)
 
+## 장윤상
+닉네임 : t5271688 
+
+좋아하는 게임 : 리그 오브 레전드 엘든 링 발헤임
+
+사진 1 물통
+
+![photo1](./img/KakaoTalk_20250121_101109681.jpg)
