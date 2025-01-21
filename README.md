@@ -9,6 +9,7 @@
 ## 김재민
 닉네임 : 99jamin56
 좋아는 게임 : LOL, baldur's gate3, Half-Life
+![Alt Text](https://blog.kakaocdn.net/dn/A4Jys/btrsSvkfSir/JdfPZxZ5LA9kGz3gsg3LcK/img.gif)
 
 
 ##  유상준
