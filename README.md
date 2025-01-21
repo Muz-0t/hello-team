@@ -4,8 +4,8 @@
 ## 신건희
 닉네임 : Muz
 좋아하는 게임 : Escape From Tarkov, baldur's gate 3
-좋아하는 영화 : 포레스트 검프
 
-## 신건희Example
-ㅇㄹ하ㅢ;'ㄴㄷㄻㄷㄹ
-ㅁㄴㄷㅇㄱ핟ㄹ하ㅣㄴㅇㅎ
+##  유상준
+닉네임 : bbobbabbi
+좋아하는 게임 : 엘든링
+![Alt Text](https://oiiaoiia.org/storage/2024/10/Cat360spin_memehdf.gif)
