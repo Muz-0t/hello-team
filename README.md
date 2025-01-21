@@ -18,8 +18,8 @@
 **![Alt Text](https://oiiaoiia.org/storage/2024/10/Cat360spin_memehdf.gif)**
 
 ## 고민종
-닉네임 : kmj3265
-좋아하는 게임 : LOL, LostArk
+닉네임 : kmj3265    
+좋아하는 게임 : LOL, LostArk    
 ![Alt Text](https://media1.tenor.com/m/SKzM3Ykw8QgAAAAd/dog-crocodile-toy.gif)
 
 
