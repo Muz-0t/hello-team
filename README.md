@@ -4,6 +4,7 @@
 ## 신건희
 닉네임 : Muz
 좋아하는 게임 : Escape From Tarkov, baldur's gate 3
+![Alt Text](https://blog.kakaocdn.net/dn/drq9jc/btr5DUtmPbq/0SeiEvANaE5tVcWQ62kftk/img.gif)
 
 ## 김재민
 닉네임 : 99jamin56
